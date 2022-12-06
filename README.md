@@ -1,1 +1,1 @@
-# veri-bilimi-blog-yaz-s-
+# VERI BILIMI VE MARKETING
