@@ -1,0 +1,1 @@
+# veri-bilimi-blog-yaz-s-
